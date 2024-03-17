@@ -4,7 +4,7 @@
 
 [![예제](http://img.youtube.com/vi/rPlqIg31sL4/0.jpg)](https://youtu.be/rPlqIg31sL4?t=0s) 
 ---------
-### PPT
+### 상세설명 PPT
 <https://drive.google.com/drive/folders/1DM_VMqtqymzSB0j6kbFBlVfTXGxct0Rs?usp=drive_link>
 ---------
 ### 개인 블로그 
